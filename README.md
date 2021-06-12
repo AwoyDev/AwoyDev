@@ -1,2 +1,2 @@
+![carbon (1)](https://user-images.githubusercontent.com/68854191/121772696-51de4500-cb77-11eb-8ff1-54a662d6404c.png)
 # Presentation
-<img src="https://media.discordapp.net/attachments/852569183467601960/853213587711197184/carbon_1.png?width=1293&height=686">
